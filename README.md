@@ -37,3 +37,13 @@ CASTELO ANIMADO
 ![](https://media1.tenor.com/m/LJCaYm51RMsAAAAd/howl-gibli.gif)
 
 
+
+O TÚMULO DOS VAGALUMES
+
+- Classificação: Livre
+
+- Gênero: Guerra, Drama
+
+- Sinopse: Os irmão Setsuko e Seita vivem no Japão em meio a Segunda Guerra Mundial. Após a morte da mãe em um bombardeio e a convocação do pai para a Guerra, eles vão morar com alguns parentes. Insatisfeitos, saem da cidade e acabam em um abrigo na floresta.
+
+![](https://media1.tenor.com/m/Y7avtqB0_twAAAAC/seita-setsuko.gif)
