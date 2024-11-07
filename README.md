@@ -22,5 +22,5 @@ A PRINCESA MONONOKE
 
 - Sinopse:Um príncipe, em busca de uma cura, luta em uma guerra entre a mata e uma colônia mineira. Nesta aventura ele conhece Mononoke.
 
-![](
+![](https://media1.tenor.com/m/PKhnbUgObZsAAAAd/mononoke-princess.gif)
 
