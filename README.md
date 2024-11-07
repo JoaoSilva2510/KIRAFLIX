@@ -35,3 +35,5 @@ CASTELO ANIMADO
 - Sinopse: Uma bruxa lança uma terrível maldição sobre a jovem Sophie transformando-a em uma velha. Desesperada, ela embarca em uma odisseia em busca do mago Howl, um misterioso feiticeiro que pode ajudá-la a reverter o feitiço.
 
 ![](https://media1.tenor.com/m/LJCaYm51RMsAAAAd/howl-gibli.gif)
+
+
