@@ -60,3 +60,14 @@ O MENINO E A GARÇA
 
 ![](https://media1.tenor.com/m/2a0ZBJZqIR0AAAAd/studio-ghibli-hayao-miyazaki.gif)
 
+
+
+SUSSUROS DO CORAÇÃO
+
+- Classifição: Livre
+
+- Gênero: Romance, Infantil
+
+- Sinopse: Shizuku, uma estudante que sonha ser uma escritora e decide, durante o verão, ler vinte livros. Mas, curiosamente, todas as edições que Shizuki pegou na biblioteca já haviam sido lidas por um tal de Seiji Amasawa
+
+![](https://media1.tenor.com/m/tEmGRvz1SZkAAAAd/whisper-of-the-heart-cartoon.gif)
