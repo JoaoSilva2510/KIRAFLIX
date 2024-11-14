@@ -71,3 +71,15 @@ SUSSUROS DO CORAÇÃO
 - Sinopse: Shizuku, uma estudante que sonha ser uma escritora e decide, durante o verão, ler vinte livros. Mas, curiosamente, todas as edições que Shizuki pegou na biblioteca já haviam sido lidas por um tal de Seiji Amasawa
 
 ![](https://media1.tenor.com/m/tEmGRvz1SZkAAAAd/whisper-of-the-heart-cartoon.gif)
+
+
+
+O MUNDO DOS PEQUENINOS
+
+- Classificação: Livre
+
+- Gênero: Infantil, Fantasia
+
+- Sinopse: Arrietty e sua família são seres pequenos, moram sob uma casa antiga e sobrevivem roubando itens da casa dos humanos e colocando a culpa em gatos e ratos. Quando o jovem Shawn se hospeda na casa, fica amigo de Arrietty, colocando o segredo em risco.
+
+![](https://media1.tenor.com/m/ILEMDzPzE7YAAAAd/arrietty-ghibli.gif)
