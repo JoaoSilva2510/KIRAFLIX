@@ -83,3 +83,15 @@ O MUNDO DOS PEQUENINOS
 - Sinopse: Arrietty e sua família são seres pequenos, moram sob uma casa antiga e sobrevivem roubando itens da casa dos humanos e colocando a culpa em gatos e ratos. Quando o jovem Shawn se hospeda na casa, fica amigo de Arrietty, colocando o segredo em risco.
 
 ![](https://media1.tenor.com/m/ILEMDzPzE7YAAAAd/arrietty-ghibli.gif)
+
+
+
+SERVIÇO DE ENTREGAS DA KIKI
+
+- Classificação: Livre
+
+- Gênero: Infantil, Fantasia
+
+- Sinopse: Por ordem de sua mãe, Kiki parte para um aprendizado de um ano, acompanhada por seu gato preto. A um comando de sua vassoura mágica, ela vai parar na charmosa cidadezinha de Moreoastal. Infelizmente, os hotéis locais não aceitam bruxas e a polícia a flagra fazendo algumas travessuras.
+
+![](https://media1.tenor.com/m/sdrByPTXnFwAAAAd/ghibli-ghiblicore.gif)
