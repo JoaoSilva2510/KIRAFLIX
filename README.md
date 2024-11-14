@@ -50,3 +50,13 @@ O TÚMULO DOS VAGALUMES
 
 
 
+O MENINO E A GARÇA
+
+- Classificação: 12
+
+- Gênero: Fantasia, Aventura
+
+- Sinopse: Mahito, um menino de 12 anos, luta para se estabelecer em uma nova cidade após a morte de sua mãe. Quando uma garça falante conta para Mahito que sua mãe ainda está viva, ele entra em uma torre abandonada em busca dela, o que o leva para outro mundo.
+
+![](https://media1.tenor.com/m/2a0ZBJZqIR0AAAAd/studio-ghibli-hayao-miyazaki.gif)
+
