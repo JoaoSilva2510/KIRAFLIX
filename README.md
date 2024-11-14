@@ -106,4 +106,4 @@ CORALINE E O MUNDO SECRETO
 
 - Sinopse: Enquanto explora sua nova casa à noite, a pequena Coraline descobre uma porta secreta que contém um mundo parecido com o dela, porém melhor em muitas maneiras. Todos têm botões no lugar dos olhos, os pais são carinhosos e os sonhos de Coraline viram realidade por lá. Ela se encanta com essa descoberta, mas logo percebe que segredos estranhos estão em ação: uma outra mãe e o resto de sua família tentam mantê-la eternamente nesse mundo paralelo.
 
-![](https://media1.tenor.com/m/PCrw6I66NzsAAAAC/coraline001.gif)
+![](https://media1.tenor.com/m/VTNFIZSois8AAAAd/laika-coraline.gif)
