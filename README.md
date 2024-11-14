@@ -119,3 +119,15 @@ A NOIVA-CADÁVER
 - Sinopse: As famílias de Victor e Victoria estão arranjando seu casamento. Nervoso com a cerimônia, Victor vai sozinho à floresta para ensaiar seus votos. No entanto, o que ele pensava ser um tronco de árvore na verdade é o braço esquelético de Emily, uma noiva que foi assassinada depois de fugir com seu amor. Convencida que Victor acabara de lhe pedir a mão em casamento, Emily o leva para o mundo dos mortos, mas ele precisa retornar rapidamente antes que Victoria se case com o malvado Lorde Barkis.
 
 ![](https://media1.tenor.com/m/7b7myp4K0koAAAAd/corpse-bride-tim-burton.gif)
+
+
+
+O ESTRANO MUNDO DE JACK
+
+- Classificação: Livre
+
+- Gênero: Musical, Infantil
+
+- Sinopse: Jack Skellington, o Rei das Abóboras, se cansa de fazer o Dia das Bruxas todos os anos e deixa os limites da cidade. Por acaso, acaba atravessando o portal do Natal, onde vê a alegria do espírito natalino. Ao retornar para a Cidade do Halloween, sem ter compreendido o que viu, ele começa a convencer os cidadãos a sequestrarem o Papai Noel e fazerem seu próprio Natal. Apesar de sua leal namorada Sally ser contra, o Papai Noel é capturado e os fatos mostrarão que Sally estava certa o tempo todo.
+
+![](https://media1.tenor.com/m/ToYkOicbTrUAAAAd/nightmare-before-christmas-jack-skellington.gif)
