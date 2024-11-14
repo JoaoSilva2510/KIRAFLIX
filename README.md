@@ -131,3 +131,15 @@ O ESTRANO MUNDO DE JACK
 - Sinopse: Jack Skellington, o Rei das Abóboras, se cansa de fazer o Dia das Bruxas todos os anos e deixa os limites da cidade. Por acaso, acaba atravessando o portal do Natal, onde vê a alegria do espírito natalino. Ao retornar para a Cidade do Halloween, sem ter compreendido o que viu, ele começa a convencer os cidadãos a sequestrarem o Papai Noel e fazerem seu próprio Natal. Apesar de sua leal namorada Sally ser contra, o Papai Noel é capturado e os fatos mostrarão que Sally estava certa o tempo todo.
 
 ![](https://media1.tenor.com/m/ToYkOicbTrUAAAAd/nightmare-before-christmas-jack-skellington.gif)
+
+
+
+FRANKENWEENIE
+
+- Classificação: 10
+
+- Genêro: Terror, Infantil
+
+- Sinopse: Victor adora fazer filmes caseiros de terror, quase sempre estrelados por seu cachorro Sparky. Quando o cão morre atropelado, o garoto fica triste e inconformado. Inspirado por uma aula de ciências que teve na escola, onde um professor mostra ser possível estimular os movimentos através da eletricidade, ele constrói uma máquina que permita reviver Sparky. O experimento dá certo, mas o que Victor não esperava era que seu melhor amigo voltasse com hábitos um pouco diferentes.
+
+![](https://media1.tenor.com/m/-e46wDpaYKAAAAAd/frankenweenie-sparky.gif)
