@@ -95,3 +95,15 @@ SERVIÇO DE ENTREGAS DA KIKI
 - Sinopse: Por ordem de sua mãe, Kiki parte para um aprendizado de um ano, acompanhada por seu gato preto. A um comando de sua vassoura mágica, ela vai parar na charmosa cidadezinha de Moreoastal. Infelizmente, os hotéis locais não aceitam bruxas e a polícia a flagra fazendo algumas travessuras.
 
 ![](https://media1.tenor.com/m/sdrByPTXnFwAAAAd/ghibli-ghiblicore.gif)
+
+
+
+CORALINE E O MUNDO SECRETO
+
+- Classificação: 10
+
+- Gênero: Terror, Infantil
+
+- Sinopse: Enquanto explora sua nova casa à noite, a pequena Coraline descobre uma porta secreta que contém um mundo parecido com o dela, porém melhor em muitas maneiras. Todos têm botões no lugar dos olhos, os pais são carinhosos e os sonhos de Coraline viram realidade por lá. Ela se encanta com essa descoberta, mas logo percebe que segredos estranhos estão em ação: uma outra mãe e o resto de sua família tentam mantê-la eternamente nesse mundo paralelo.
+
+![](https://media1.tenor.com/m/PCrw6I66NzsAAAAC/coraline001.gif)
