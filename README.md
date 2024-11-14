@@ -107,3 +107,15 @@ CORALINE E O MUNDO SECRETO
 - Sinopse: Enquanto explora sua nova casa à noite, a pequena Coraline descobre uma porta secreta que contém um mundo parecido com o dela, porém melhor em muitas maneiras. Todos têm botões no lugar dos olhos, os pais são carinhosos e os sonhos de Coraline viram realidade por lá. Ela se encanta com essa descoberta, mas logo percebe que segredos estranhos estão em ação: uma outra mãe e o resto de sua família tentam mantê-la eternamente nesse mundo paralelo.
 
 ![](https://media1.tenor.com/m/VTNFIZSois8AAAAd/laika-coraline.gif)
+
+
+
+A NOIVA-CADÁVER
+
+- Classificação: Livre
+
+- Gênero: Infantil, Fantasia
+
+- Sinopse: As famílias de Victor e Victoria estão arranjando seu casamento. Nervoso com a cerimônia, Victor vai sozinho à floresta para ensaiar seus votos. No entanto, o que ele pensava ser um tronco de árvore na verdade é o braço esquelético de Emily, uma noiva que foi assassinada depois de fugir com seu amor. Convencida que Victor acabara de lhe pedir a mão em casamento, Emily o leva para o mundo dos mortos, mas ele precisa retornar rapidamente antes que Victoria se case com o malvado Lorde Barkis.
+
+![](https://media1.tenor.com/m/7b7myp4K0koAAAAd/corpse-bride-tim-burton.gif)
